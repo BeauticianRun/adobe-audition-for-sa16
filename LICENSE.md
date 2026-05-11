@@ -1,4 +1,4 @@
-# 
+# Adobe Audition for macOS best LUT: green-screen-removal & auto-color-grading offers the most advanced Adobe Audition for macOS lut, with green-screen-removal and
 
 
 
